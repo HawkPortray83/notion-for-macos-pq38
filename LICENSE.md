@@ -1,4 +1,4 @@
-#  
+#  Notion for macOS smart Script - task automation and quick search is the best Notion for macOS script, featuring task automation and quick search. Safe, efficient, and optimized
 
 
 
